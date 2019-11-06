@@ -1,20 +1,20 @@
 Meditation is the attuning of the mental and physical body to your spiritual source.
-冥想是把精神和物理身体向灵魂之源调谐的过程。
+##### 冥想是把精神和物理身体向灵魂之源调谐的过程。
 
 Meditation builds a protective barrier around yourself against harmful forces.
-冥想可以帮你建立起一个围绕并保护你远离有害力量的屏障。
+##### 冥想可以帮你建立起一个围绕并保护你远离有害力量的屏障。
 
 Meditation will help you manifest the fruits of the Holy Spirit and the white light of the Christ.
-冥想可以帮你表现圣灵的果子和基督的白光。
+##### 冥想可以帮你表现圣灵的果子和基督的白光。
 
 Meditation allows you to obtain information on any subject and the answer will come from within.
-冥想可以让你获得关于任何主题的信息，答案来自内部。
+##### 冥想可以让你获得关于任何主题的信息，答案来自内部。
 
 Meditation is the way to at-one-ment with God.
-冥想是与上帝合一（一口气）的方法。
+##### 冥想是与上帝合一（一口气）的方法。
 
 Constant communication with God through meditation will result in spiritual guidance.
-通过冥想和上帝不断的交流会得到灵性上的引导。
+##### 通过冥想和上帝不断的交流会得到灵性上的引导。
 
 During meditation, you can increase the spiritual forces taking place within your inner self.
 This is necessary to help you attune and become one with the Creative Force - just as in the pitch of a song of praise.
