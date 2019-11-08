@@ -17,12 +17,26 @@
 * 通过冥想和上帝不断的交流会得到灵性上的引导。
 
 ##### During meditation, you can increase the spiritual forces taking place within your inner self.
+* 冥想可以增强你内在的精神力量
+
 ##### This is necessary to help you attune and become one with the Creative Force - just as in the pitch of a song of praise.
+* 有必要使你调谐于原创力量，成为原创力量的一部分。好像赞美歌曲的音调一样。
+
 ##### Raise these spiritual forces in yourself and you will enter the presence of your Maker.
+* 增强你内的精神力量，你会进入你创造者搬的存在。
+
 ##### No sacrifice is necessary except your desire to be one with God.
+* 除非你渴望与上帝合一，否则没有牺牲的必要。
+
 ##### You will know within yourself when you are in an at-one-ment with God.
+* 当你与上帝合一时，你会认识内在的你。
+
 ##### Read about the promises of Jesus in the book of John, chapters 14-17, to learn about the spirit of light within you to help unlock your inner self.
+* 
+
 ##### Set definite time periods to listen to the voice of your Maker. Meditate either at 11:00 am to noon in the day or 11:00 pm to midnight in the evening. The best time is 2:00 am to 3:00 am in the morning. (For at least 30 minutes)
+
+
 ##### Meditate facing east (for polarity with the Earth) and in the same place each day.
 ##### For some people, the song of the spheres is necessary for their comfort in meditation and to rest the senses.
 ##### Sit or lie in an easy position, without any binding garments around your body.
